@@ -3,8 +3,7 @@
 - 🌱 I’m currently learning design and japanese
 - 💞️ I’m looking to collaborate on simple ways of learning everything
 - 📫 How to reach me: copilt chat
-- 😄 Pronouns: you your I mine it its Fox
-- y
+- 😄 Pronouns: you your I mine it its Foxy
 - ⚡ Fun fact: F is for fun
 
 <!---

@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @BeLLKa1
+- 👋 Hi, I’m @KanjiFox
 - 👀 I’m interested in languages
 - 🌱 I’m currently learning design and japanese
 - 💞️ I’m looking to collaborate on simple ways of learning everything
